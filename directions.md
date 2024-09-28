@@ -1,1 +1,1 @@
-#Directions on How to Get Your Following and Followers List
+# Directions on How to Get Your Following nad Followers List
