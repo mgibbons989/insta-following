@@ -1,4 +1,4 @@
-# Directions on How to Get Your Following nad Followers List
+# Directions on How to Get Your Following and Followers List
 - Navigate to your Instagram Settings (Top right three lines on your profile)
 - Click "Accounts Center"
 - Under "Account settings", click "Your information and permissions"
